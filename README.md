@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MedFrio.
+- 👋 Hi, I’m Mohammed FRIOUICHEN.
 - 👀 I am interested in IT and new technologies.
 - 🌱 I am currently an IT student.
 - 📫 How to reach me : mohammed.friouichen03@gmail.com
